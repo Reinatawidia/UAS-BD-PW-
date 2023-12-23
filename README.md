@@ -1,3 +1,2 @@
-# [BD3][UAS] - [Esther Gracia][221401017] - [Reinata Carolina][221401021]
 # [PW3][UAS] - [Esther Gracia][221401017] - [Reinata Carolina][221401021]# 
 Ester Gracia 221401017 &amp; Reinata Carolina 221401021
